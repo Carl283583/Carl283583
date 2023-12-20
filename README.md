@@ -1,5 +1,5 @@
 
-Hello, please reach out to me through the email address above if you need help.
+Hello, please reach out to me through the email address below if you need help.
 I will happily help in any project.
 
 
